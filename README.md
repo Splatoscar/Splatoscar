@@ -1,5 +1,5 @@
 - 👋 Salut à tous, je sui le (pas) célèbre Splatos.
-- 👀 Je suis français, et j'adore les jeux vidéos ainsi que les animations 3D/2D ^^
+- 👀 J'adore les jeux vidéos ainsi que les animations 3D/2D ^^
 - Et voilà
 
 <!---
