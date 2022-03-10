@@ -1,4 +1,4 @@
-- 👋 Salut à tous, je sui le (pas) célèbre Splatos.
+- 👋 Salut à tous, je suis le (pas) célèbre Splatos.
 - 👀 J'adore les jeux vidéos ainsi que les animations 3D/2D ^^
 - Et voilà
 
